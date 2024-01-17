@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @penelopeyang1
-- 🌱 I’m currently learning full-stack web development 
+- 🌱 I’m currently learning full-stack web development at App Academy
 - 📫 Let's connect on LinkedIn ~ www.linkedin.com/in/penelope-yang
 
 <!---
