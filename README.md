@@ -3,7 +3,6 @@ I’m Penelope, and I build digital experiences that are equal parts useful, bea
 
 🧩 I mix logic with aesthetics  
 🎮 I make interfaces interactive, playful, and bold  
-🧠 Full-stack 
 🤖 Curious about AI, obsessed with usability  
 🔧 Always exploring new ideas and building with intention
 
