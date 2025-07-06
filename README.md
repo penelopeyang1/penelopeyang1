@@ -2,11 +2,6 @@
 
 I’m Penelope (˶ᵔ ᵕ ᵔ˶), and I build digital experiences that are equal parts useful, beautiful, and unforgettable.
 
-🧩 I mix logic with aesthetics  
-🎮 I make interfaces interactive, playful, and bold  
-🤖 Curious about AI, obsessed with usability  
-🔧 Always exploring new ideas and building with intention
-
 I’m not trying to reinvent the wheel - just make the ride a little smoother .𖥔 ݁ ˖𓂃.☘︎ ݁˖
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⢀⣶⣿⣷⣶⣶⣦⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
