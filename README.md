@@ -1,3 +1,5 @@
-. ݁₊ ⊹ . ݁˖ . ݁ The world doesn’t need more software engineers - it needs creators with vision . ݁₊ ⊹ . ݁˖ . ݁
+Hi, I'm Penelope (˶ᵔ ᵕ ᵔ˶), and I build eye-catching digital experiences . ݁₊ ⊹ . ݁˖ . ݁ 
 
-I’m Penelope (˶ᵔ ᵕ ᵔ˶), and I build digital experiences that are equal parts useful, beautiful, and unforgettable.
+ With an eye for business and user satisfaction, I enjoy creating things I wished existed ~
+
+Open to work :) 
