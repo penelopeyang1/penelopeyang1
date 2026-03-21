@@ -1,5 +1,5 @@
 Hi, I'm Penelope (˶ᵔ ᵕ ᵔ˶)
 
-I enjoy creating things I wished existed . ݁₊ ⊹ . ݁˖ . ݁ 
+I want to create things I wished existed . ݁₊ ⊹ . ݁˖ . ݁ 
 
-Open to work :) 
+more to come!
